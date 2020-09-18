@@ -1,2 +1,0 @@
-# polkadance-productions
-crowdfund entertainment
